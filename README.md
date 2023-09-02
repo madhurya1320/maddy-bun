@@ -1,3 +1,3 @@
-# maddy-bun
+# madhurya-kosti
 Be fabulous
 be kind
